@@ -60,3 +60,4 @@ Frontend Developer — รับผิดชอบออกแบบและพ
 |---------|--------|
 | 📧 **Email** | atomsmile123@gmail.com |
 | 💬 **Instagram** | _.krxirato |
+| 📞 **Tell** | 0838214184 |
